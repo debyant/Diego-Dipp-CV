@@ -1,2 +1,0 @@
-# Diego-Dipp-CV
-Project 
